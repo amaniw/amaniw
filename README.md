@@ -1,4 +1,4 @@
-### Hi there I'm Amani! <img src=https://www.pngwing.com/en/free-png-vuuqu widtd=50px>
+### Hi there I'm Amani! <img src="pngwing.com.png">
 
 I'm a senior psych student looking to have a career in UX design in the gaming industry. 
 
